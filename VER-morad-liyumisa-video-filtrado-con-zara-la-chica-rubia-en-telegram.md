@@ -1,8 +1,12 @@
 En días recientes, consultas como ¿Dónde ver el video de Morad en Liyumisa?, ¿El video de Morad en Liyumisa?, ¿Video de Zara y Morad en Telegram y Twitter?, se han convertido en tendencia tras la filtración de un video comprometedor del rapero español.
 
-La filtración del metraje ha llevado a múltiples internautas, a emprender interminables búsquedas en sitios como Twitter y Erome, además del popular sitio de contenido para adultos, conocido como Luyumisa, donde se han filtrados múltiples videos de creadores de contenido.
 
-Aunque la existencia del clip, así como su autenticidad ha sido un tema de debate, lo cierto es que es el clip comprometedor se ha viralizado en las diversas plataformas sociales, llevando a muchos a crear debates públicos y compartir pequeños clips del metraje en las plataformas sociales.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 
 View post on X
