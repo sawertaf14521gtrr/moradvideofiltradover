@@ -1,14 +1,11 @@
 Một đoạn clip được cho là Chu Thanh Huyền trong quá khứ, đang hát trong quán karaoke bỗng gây sốt trên MXH. Thực hư chuyện này như thế nào?
 
-Clip Chu Thanh Huyền bất ngờ gây bão mạng xã hội
 
-Tối ngày 25/3, mạng xã hội bất ngờ xôn xao trước một đoạn clip được cho là của Chu Thanh Huyền – vợ cầu thủ Nguyễn Quang Hải. Video được lan truyền trên một group kín, trong đó ghi lại cảnh một cô gái đang hát trong quán karaoke, ngồi cạnh một người đàn ông.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
-Dù chất lượng hình ảnh mờ nhòe, không rõ khuôn mặt, nhưng bài đăng lại gắn hashtag "Chu Thanh Huyền karaoke" kèm theo dòng trạng thái đầy ẩn ý:
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
-"Rồng, hổ có lúc sa cơ. Dẫu là tôm tép cũng sờ được thôi."
-
-Dòng caption này ngay lập tức thu hút sự chú ý, khiến dân mạng không khỏi liên tưởng đến Chu Thanh Huyền, bởi trước đó cô từng có phát ngôn gây bão trên MXH.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 
 
