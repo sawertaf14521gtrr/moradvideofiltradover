@@ -1,9 +1,11 @@
 A pocos días del comienzo de las vacaciones de la Semana Santa 2025, varias personas fueron protagonistas de una pelea, que se asegura fue en una de las playas de Tela, departamento de Atlántida, en la zona norte de Honduras.
 
-En redes sociales se difundió el vídeo de un minuto en que se aprecia cómo tres mujeres están tiradas justo en la orilla del mar, mientras se imparten golpes.
 
-Banner de tunota de canal WhatsApp
-Mientras tanto, a un lado de ellas está otro grupo de personas, entre hombres y mujeres de diferentes edades, empujándose, insultándose y dándose manotadas sin importar nada.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 
 De un momento a otro, una mujer vestida de blanco se une a las primeras tres, hala del pelo a una, le da puñetazos en la cabeza y termina intercambiando más golpes con otra.
